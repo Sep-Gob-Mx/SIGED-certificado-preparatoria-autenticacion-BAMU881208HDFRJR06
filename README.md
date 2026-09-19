@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-BAMU881208HDFRJR06
+BAMU881208HDFRJR06
